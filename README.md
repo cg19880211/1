@@ -1,35 +1,20 @@
 # 小姐姐最新下载地址（2020年1月22日更新）
-### [kwr4.xyz](http://kwr4.xyz)
-### [5jvb.xyz](http://5jvb.xyz)
-### 主播版下载地址 [037i.xyz](http://037i.xyz)<br> （观众下载无法使用）
+### [xxyx.xyz](http://xxyx.xyz)
+### 主播版下载地址 [xxyx.xyz](http://xxyx.xyz)<br> （观众下载无法使用）
 备用观众版下载地址如下<br>
  
-3bok.xyz<br>
-sprz.xyz<br>
-td8j.xyz<br>
-8di3.xyz<br>
-w09s.xyz<br>
-p2m2.xyz<br>
-qwur.xyz<br>
-fq2w.xyz<br>
-ige6.xyz<br>
-bx2o.xyz<br>
-rhir.xyz<br>
-h26v.xyz<br>
+xxyx.xyz<br>
+xxyx.xyz<br>
+xxyx.xyz<br>
+
 
 
 
 备用主播版下载地址如下<br>
-dau5.xyz<br>
-ex05.xyz<br>
-1eh0.xyz<br>
-vb7a.xyz<br>
-zspk.xyz<br>
-glvg.xyz<br>
-3t6h.xyz<br>
-7l6n.xyz<br>
-q0up.xyz<br>
-5zsx.xyz<br>
+xxyx.xyz<br>
+xxyx.xyz<br>
+xxyx.xyz<br>
+
 
 # 直播平台回家页
 本页专人更新，随时获得直播最新下载地址！<br>
